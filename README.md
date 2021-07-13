@@ -21,8 +21,6 @@ We're always changing the layout, adding birds and optimizing our fertilizer,  m
  
  ![WhatsApp ![WhatsApp Image 2020-10-28 at 17 57 02](https://user-images.githubusercontent.com/87326030/125463822-7c5e06d4-e1f3-4cf2-9ac9-73548b5dec6e.jpeg)
  
- ![WhatsApp Image 2020-10-28 at 17 57 02](https://user-images.githubusercontent.com/87326030/125463889-ae493b4e-4aea-4059-9503-4fc222d66a79.jpeg)
-
  ![WhatsApp Image 2020-10-21 at 12 30 40](https://user-images.githubusercontent.com/87326030/125463905-3c96ba15-4050-4a6d-be0b-ea23aad85d9f.jpeg)
 
  ![IMG_20191022_161803](https://user-images.githubusercontent.com/87326030/125463921-d594373f-685f-415b-8df9-159e2b650c9d.jpg)
