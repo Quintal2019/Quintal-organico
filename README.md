@@ -5,6 +5,13 @@
 Quintal Orgânico was born from the food scraps turned in to natural fertilizer for the soil in a power plant in Soyo-Zaire, Angola, was founded by Hélio Encoge, an Angolan architect.
 .....
 
+## Social and Environmental Impact
+![7](https://user-images.githubusercontent.com/84878611/125527836-ffab4f22-684b-4cd0-8446-a265541a577f.png)
+![8](https://user-images.githubusercontent.com/84878611/125527828-9778839c-b2b3-4658-ae25-a45eb5a73a1d.png)
+![9](https://user-images.githubusercontent.com/84878611/125527832-0aab11c6-8312-43fc-acfa-bdf7fb786100.png)
+
+
+
 ## Layout
 We're always changing the layout, adding birds and optimizing our fertilizer,  minimizing the negative waste impact, producing eggs and meat for the community.  
  ![WhatsApp Image 2020-07-21 at 15 38 42](https://user-images.githubusercontent.com/87326030/125462972-4e0b32e6-1ff6-45e7-ae99-86b8022b522f.jpeg)
